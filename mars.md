@@ -6,4 +6,5 @@ The two moons may be a problem for Wolfman
 But the Mummy will appreciate the lack of humidity
 
 Mars is going to be a great adventure!
+No, Your all going to die, alone, on the barren red dessert, and be forgotten.
 
